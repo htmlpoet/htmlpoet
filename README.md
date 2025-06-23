@@ -56,7 +56,7 @@ Coming soon:
 - ✍️ _Liberating writing for self-expression_  
 - 🧭 _Sociology for navigating real life_
 
-**Book me or learn more** → [contact.htmlpoet@proton.me](mailto:contact.htmlpoet@proton.me)
+**Book me or learn more** → [contact.htmlpoet@proton.me](mailto:juliendylan@proton.me)
 
 ---
 
